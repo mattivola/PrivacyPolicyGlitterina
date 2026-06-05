@@ -6,7 +6,7 @@ Your privacy is fundamental to us. This privacy policy, in compliance with the G
 1. Data Controller
 The Data Controller is Mattia Rinaldi, contactable for any privacy-related issues at the email address: 
 
-mattivola@hotmail.it
+glitterina.dev@outlook.it
 .
 
 2. Type of Data and Purposes
